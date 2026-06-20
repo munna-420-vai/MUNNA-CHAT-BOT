@@ -1,4 +1,4 @@
-### —͟͟͞͞𝐒𝐇𝐀𝐇𝐀𝐃𝐀𝐃 𝐂𝐇𝐀𝐓 𝐁𝐎𝐓  𝐅𝐎𝐑𝐊  🌺  
+### 〲মহারাজা 卝 MUNNAヅ࿐ 🌺  
   
 ❖ **`A Messenger Multi Device Bot To Take Your Messenger To Another Level!`**   
   
@@ -165,8 +165,8 @@ ___
 
 #### 📞 CONTACT
 - **WhatsApp:** [WhatsApp Me](https://wa.me/+8801882333052)
-- **Facebook:** [Profile Me](https://facebook.com/100044713412032)
-- **Messenger:** [Message Me](https://m.me/100044713412032)
+- **Facebook:** [Profile Me](https://www.facebook.com/share/1BgtQVpu4e/)
+- **Messenger:** [Message Me](https://m.me/munna.boss.444)
 
 #### 🚀 APPROACH
 - 💻 Copy-paste techniques with deep customizations  
